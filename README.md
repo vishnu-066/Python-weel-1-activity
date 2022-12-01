@@ -1,1 +1,0 @@
-# Python-weel-1-activity
